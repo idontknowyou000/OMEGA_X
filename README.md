@@ -1,0 +1,2 @@
+# OMEGA_X
+ATTACK
